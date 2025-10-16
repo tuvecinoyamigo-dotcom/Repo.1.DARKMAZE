@@ -1,5 +1,5 @@
 ![DARK-MAZE](portada.jpg)
-El Tesoro de los 10.000 Reyes:
+*****El Tesoro de los 10.000 Reyes:
 El Tesoro de los 10.000 Reyes es una odisea trepidante donde la ambición se mezcla con el peligro y la gloria aguarda a quienes se atrevan a reclamarla. Nuestros héroes han hallado un objeto legendario, perdido en el tiempo y codiciado por todos, que promete conducirlos hasta la mayor riqueza jamás soñada: el mítico Tesoro de los 10.000 Reyes.
 
 Pero el camino no será sencillo. Entre mares embravecidos y tormentas desatadas, se verán obligados a luchar contra despiadados piratas, criaturas marinas surgidas de las profundidades y horrores mitológicos como las implacables Gorgonas. Cada desafío será un salto hacia lo
