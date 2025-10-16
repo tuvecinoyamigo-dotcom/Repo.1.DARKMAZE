@@ -34,7 +34,6 @@ mismos han creado. Nuestros héroes deberán enfrentarse a esta extraña tiraní
 Oda a la Muerte 2:
 Un viejo comediante, cansado de la rutina de la vida mortal, se encuentra con Nyx, la insondable diosa de la oscuridad. Ante él, un desafío imposible: tocar la canción más hermosa del mundo, o su alma sería devorada por la sombra eterna. Guiado por el miedo y la pasión por la música, logra arrancar lágrimas a la diosa con su melodía, ganándose su favor. Como recompensa, Nyx le entrega un regalo sin igual: un Arpa poderosa, capaz de devolver la vida a quien él desee, otorgándole el poder de cumplir un último deseo imposible.
 Ahora, los héroes deberán acompañar al comediante en un viaje donde cada nota de su arpa puede salvar o condenar, enfrentándose a fuerzas oscuras, misterios antiguos y dilemas morales que desafían la esencia misma de la vida y la muerte. El tiempo se agota, y el último acto está por comenzar.
-
-
-
 =====FIN======
+
+- FOR THE BEST TEACHER -
